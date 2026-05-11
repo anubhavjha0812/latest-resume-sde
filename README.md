@@ -1,1 +1,4 @@
-My resume over the time for sde role.
+My latest resume over the time.
+
+If you are looking for a Full Stack AI Enginner, You are at the right place!
+
